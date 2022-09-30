@@ -1,0 +1,1 @@
+honestly, this past class has been the most difficult for me. I did not understand the full scope of the in class exercises we did in the last few minutes, and i was not sure what to do exactly. mostly about functions and object relations. 
